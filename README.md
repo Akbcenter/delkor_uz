@@ -1,0 +1,1 @@
+# delkor_uz
